@@ -1,9 +1,8 @@
-## Hi,
+## stepping in tech world 
  Devarshi here,
- initiating steps to tech world...
- learning something new everyday...
- soon to be a grad...
- full of energy and enthusiasm...
+ learning something new everyday,
+ soon to be a grad,
+ full of energy and enthusiasm.
  
  
  
