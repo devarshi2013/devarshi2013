@@ -3,6 +3,7 @@
  learning something new everyday,
  soon to be a grad,
  full of energy and enthusiasm.
+ explore, learn and build.
  
  
  
